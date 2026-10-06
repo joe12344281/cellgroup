@@ -1,6 +1,6 @@
 # Hymns
 
-## YouTube Hymns
+## YouTube Hymns (Oct 2nd 2026) Act chapter 4 
 
 - [371 先賢之信 Faith of Our Fathers-piano](https://www.youtube.com/watch?v=mN7KPWMvzC4)
 - [【祂拯救我 He Lifted Me】 教會聖詩 Hymns 453](https://www.youtube.com/watch?v=AxsraZ8Kg_M)
